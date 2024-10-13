@@ -1,2 +1,2 @@
-# SSC HELP
-Useful Resources for Cracking SSC Exams
+# SSC STENO HELP
+Useful Resources for Cracking SSC Steno Exam
